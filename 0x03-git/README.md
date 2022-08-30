@@ -1,1 +1,1 @@
-we learning
+Learning is fun
